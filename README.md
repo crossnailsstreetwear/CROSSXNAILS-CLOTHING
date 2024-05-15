@@ -1,1 +1,2 @@
 # CROSSXNAILS-CLOTHING
+At Crossxnails, we have a range of mid-luxury products that are made using the same high-quality materials as other luxury brands in the market. However, we don't charge a luxury price for our products because we believe that everyone should be able to afford them. Our brand supports various causes, including the homeless, people fighting cancer, and students in the UK and the Philippines. By purchasing our products, you can help us in our mission to make a positive impact on these communities.check us on our website www.weargood.crossxnails.shop
